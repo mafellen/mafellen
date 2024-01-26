@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Engenheira civil estudante de programação<br>👯 Quero trocar experiências e aprendizados com outras pessoas <br>🌱 Estou aprendendo o básico utilizando sites gratuitos (como FreeCodeCamp) e intensivos gratuitos de cursos pagos antes de começar um curso de formação <br>🛹Fun fact: sou skatista<br><br> 💪💻💁‍♀️✨
+🔭 Engenheira civil estudante de programação<br>👯 Quero trocar experiências e aprendizados com outras pessoas <br>🌱 Estou aprendendo o básico utilizando sites gratuitos (como FreeCodeCamp) e intensivos gratuitos de cursos pagos antes de começar um curso de formação <br>🛹Fun fact: sou skatista ❤️💫<br><br> 💪💻💁‍♀️✨
 
 
 ## 🌐 Socials:
